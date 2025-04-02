@@ -1,1 +1,0 @@
-# Surveillance-Capitalism-Technopoly
